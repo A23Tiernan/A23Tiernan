@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @A23Tiernan and i do infact exist
+- 👋 Hi, I’m @A23Tiernan and i do in fact exist
